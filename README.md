@@ -1,4 +1,3 @@
-# Abdullah Riaz
 ### Performance Marketing Manager | D2C Growth Specialist | Karachi, Pakistan
 
 Abdullah Riaz is a certified Performance Marketing Manager and Media Buyer with 5+ years of hands-on experience driving D2C revenue growth and executing full-funnel digital advertising across global ad ecosystems.
