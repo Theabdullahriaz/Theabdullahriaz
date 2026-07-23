@@ -33,16 +33,6 @@ Currently, he leads multi-brand paid media scaling for Itqan Corporation across 
 
 ---
 
-### Professional Credentials & Education
-
-• **Certifications:** Meta Social Media Marketing Professional, McKinsey Forward Alumnus, Google Ads & GA4 Certified, Snapchat Advertising Essentials.
-
-• **Academic Degree 1:** Bachelor of Business Administration (BBA) — Iqra University, Karachi (2023–2026)
-
-• **Academic Degree 2:** Bachelor of Commerce (BCom) — University of Karachi (2018–2022)
-
----
-
 ### Verified Digital Identity
 
 • **Professional Network:** https://www.linkedin.com/in/theabdullahriaz/
